@@ -1,7 +1,7 @@
 ### Hi there!
 I'm Vladimir, for the colleagues and friends from different places than Russia & CIS I'm Bob ;)
 
-I am originally from Kazakhstan :kazakhstan:, but I managed to work in a number of countries
+I was born in Kazakhstan :kazakhstan:, but I managed to work in a number of countries
 
 :ru: :belarus: :vietnam: :united_arab_emirates: :us: :kr:
 
