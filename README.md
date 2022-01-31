@@ -11,4 +11,4 @@ I was born in Kazakhstan :kazakhstan:, but I managed to work in a number of coun
 * Since then took some break on coding and began to manage IT teams :office_worker:
 * Now i do Java (mainly), PHP, JS (Angular 2, Vue) and managing IT-teams)
 
-*git/ansible/artifactory/jenkins/zabbix and many more other interesting stuff*
+*git/ansible/artifactory/jenkins/zabbix and much more other interesting stuff*
