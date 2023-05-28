@@ -1,5 +1,5 @@
 ### Hi there!
-I'm Vladimir, for the colleagues and friends from different places than Russia & CIS I'm Bob ;)
+I'm Vladimir, for the colleagues and friends from different places than CIS I'm Bob ;)
 
 I was born in Kazakhstan :kazakhstan:, but I managed to work in a number of countries
 
